@@ -1,12 +1,11 @@
 <p align="center">
-    $${\color{#e4eac5}IF~YOU~EVER\space \color{#dfd3d6}TRY~TO~LEAVE \space \color{#c4c0d6}{ME~I'LL~FIND}\space \color{#a1b6d6}YOU~AMERICA}$$
-</p>
+remaking again yoo
+    </a>
+
 <p align="center">
-<img src="https://i.postimg.cc/0Q3w0L0s/Untitled82-20260919110505.png" alt="Alt text" width="570">
-<p align="center">
-  <a href="https://medical-play.straw.page/" target="_blank">
-  <img src="https://i.postimg.cc/N967rcFp/Untitled82-20260919111241.png" alt="Alt Text" width="200"> <a href="https://fluffle.cc/medical-play" target="_blank">
-  <img src="https://i.postimg.cc/tZ3tVjJB/Untitled82-20260919111341.png" alt="Alt Text" width="200"> <a href="https://medical-play.atabook.org/" target="_blank">
-  <img src="https://i.postimg.cc/476bhgy8/Untitled82-20260919111443.png" alt="Alt Text" width="200"> <a href="https://pronouns.cc/@vrysgore" target="_blank">
-  <img src="https://i.postimg.cc/cgRM8SCk/Untitled82-20260919111554.png" alt="Alt Text" width="200">
+        
+[ata](https://medical-play.atabook.org/) [strawpage](https://medical-play.straw.page/) [prns](https://pronouns.cc/@vrysgore) [fluffle](https://fluffle.cc/medical-play)
+
+[apology](https://docs.google.com/document/d/17ONJ4kjqIirRvSiJfG8rcgYWvT5sdbS98PyHiPjntas/edit?tab=t.0) i dont expect people to still forgive me, and thats okay, I still deeply regret my actions
+ 
 </a>
